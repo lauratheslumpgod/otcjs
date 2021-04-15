@@ -1,2 +1,2 @@
-# lauragod#1337
+# laurahvh#1337
 Steam > steamapps > common > Counter-Strike Global Offensive > ot > scripts
